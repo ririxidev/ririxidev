@@ -3,7 +3,7 @@
 
 # Something about me uwu
  - Pronouns: she/her.
- - Fun fact: ~~I'm a furry~~.
+ - Fun fact: ~~I'm a furry~~ & I'm [musixmatch](https://musixmatch.com) **Curator**
 
 # Contact me （＾－＾✿）
  - [Twitter](https://twitter.com/ririxichan)
